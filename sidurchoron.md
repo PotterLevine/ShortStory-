@@ -1,7 +1,7 @@
-![সুভা!](https://parabaas.com/translation/database/authors/images/bbb.jpg)
+![সুভা!](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUGysVAN9FeIallM4hFQlaFOvEua0SO596Yw&s)
 
-# সিঁদুরচরণ-
-### – বিভূতিভূষণ বন্দ্যোপাধ্যায় 
+# সুভা
+### – রবীন্দ্রনাথ ঠাকুর 
 
 
 ---
